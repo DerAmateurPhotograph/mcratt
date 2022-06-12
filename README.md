@@ -3,7 +3,7 @@
 
 ### Sat 2022.06.11
 ![Edelweiss](https://lh3.googleusercontent.com/vM5tFsMOwYWNeUM2F9R74kdQsuHeGl0JW8ffDYPTUNngUz1z0UaSxRAgkCJrl0nlYxA0Rt8pRcGjn5nsTCTuFl75_JQKnKJNbEVfxdlR_o4SfRsg59fCoKGqAPyqmHmngfNQSwSH_FM=w2400)*Edelweiss*&nbsp;
-
+### Ein Versuch bei Dir zu kommentieren. LG Bernhard  https://deramateurphotograph.de
 ### Fri 2022.06.10
 ![Guacamole](https://lh3.googleusercontent.com/coWSUA2pse3Byndu9ZI-rmUPdBKWyHm1I3o2SiyQyWFFUX2lIoHt-ep-5CgYHyfrHax9kYmQjZix5tJqbIMtR0yUwqdaOm08bsvr9Amuy5GhJWuia7z3WJKZOfu8A1nmPuVP_GJUd8I=w2400)*Guacamole*&nbsp;
 
